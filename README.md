@@ -5,4 +5,4 @@
 - 📫 Contact me on linkedIn:-https://www.linkedin.com/in/kaushal-tiwari-294628227/
 - 😄 Pronouns: Him/His
 -  🏳 Resume:-https://drive.google.com/file/d/1UGLAGapYi0inXFQFVrt65EZ9hf4NUIqO/view?usp=drive_link
-- ⚡ Fun fact: I also writes poetry and fictional tories
+- ⚡ Fun fact: I also writes poetry and fictional stories
