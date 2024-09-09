@@ -6,5 +6,5 @@
 - 😄 Pronouns: Him/His
 -  🏳 Resume:-https://drive.google.com/file/d/1UGLAGapYi0inXFQFVrt65EZ9hf4NUIqO/view?usp=drive_link
 - ⚡ Fun fact: I also writes poetry and fictional stories
-- Portfolio:- Coming soon
-- Right now i want internship.
+- Portfolio:- https://react-portfolio-kaushal-615w.vercel.app/
+- Looking for an Intenship.
