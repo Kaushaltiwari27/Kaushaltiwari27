@@ -15,6 +15,9 @@ Web Development • JavaScript • Frontend • Backend Basics • AI Tools • 
 
 🌐 Connect & Explore
 🔗 LinkedIn: https://www.linkedin.com/in/kaushal-tiwari-294628227/
+
+
+
 💼 Portfolio: https://kaushal-crafted-portfolio.lovable.app/
 
 
